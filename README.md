@@ -1,2 +1,9 @@
 # Kot-PyrogramGenStr
-MADE BY : [KOTBOTS](https://t.me/KOT_BOTS) 
+MADE BY : [KOTBOTS](https://t.me/KOT_BOTS)
+
+THE REPO IS NOTING BUT 
+## SOON I WILL TELL LATER POWER BY : [KOT DEVELOPERS](https://t.me/KOT_DEVELOPERS)##
+
+
+
+
